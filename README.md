@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on COMPANIES WHERE I CAN UPGRADE MY SKILLS SO ONE DAY I CAN BUILD MY OWN STARTUP SUCCESSFULLY
 - 📫 How to reach me MAIL ME AT aaaanshika68@gmail.com
 - 😄 Pronouns: YOU CAN CALL ME JASS
-- ⚡ Fun fact:I BEST AT DOING LOT OF MISTAKES AND I LEARN FROM THEM TOO.
+- ⚡ Fun fact:I AM BEST AT DOING LOT OF MISTAKES AND I LEARN FROM THEM TOO.
 
 <!---
 jass-ie/jass-ie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
